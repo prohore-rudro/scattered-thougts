@@ -1,2 +1,0 @@
-# scattered-thougts
-Blog
